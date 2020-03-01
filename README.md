@@ -1,1 +1,1 @@
-# cw1
+MACIEJ PISZEK grupa 12c s16535
